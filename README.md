@@ -1,0 +1,4 @@
+- Hi, I’m @oreoconsumer
+- I’m interested in running, coding, and gaming.
+- I’m currently learning python, after I'd like to learn Java Script and then C/C++.
+- Email me: jonaleman777@gmail.com for any inquiries.
