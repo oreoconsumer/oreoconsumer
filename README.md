@@ -1,4 +1,4 @@
 - Hi, I’m Jon!
 - I’m interested in running, coding, and gaming.
 - I’m currently learning how to code!
-- Email me: jonaleman777@gmail.com for any inquiries.
+- Email me: 132114566+oreoconsumer@users.noreply.github.com for any inquiries.
